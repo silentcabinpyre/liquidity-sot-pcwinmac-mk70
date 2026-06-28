@@ -1,4 +1,4 @@
-# 
+# Profissional liquidity sniper bot predefinições para Mac OS | Inteligente liquidity sniper bot predefinições para PC Windows. Com acesso rápido ao mempool e testes de simulação — otimizado para máximo desempeño en cada plataforma.
 
 
 
